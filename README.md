@@ -1,4 +1,4 @@
-- 👋 Hi, We're Reverse - A (Alpha) studios.
+- 👋 Hi, We're Reverse-A Studios (Alpha).
 - 👀 We are interested in science fiction - action cinematic, games, visuals and designs.
 - 🌱 We're currently learning and working on C#&CPP with Unity&UnrealEngine and at the same time with Modelling Tools.
 - 💞️ We're looking to collaborate on making a story game or any...
