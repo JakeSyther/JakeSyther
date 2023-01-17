@@ -2,7 +2,7 @@
 -  We are interested in science fiction - action cinematic, games, visuals and designs.
 -  We're currently working on with Unity&UnrealEngine(C#&CPP) and with Modelling Tools.
 -  We're looking to collaborate on making a story game...
--  If You're interested in, Contact via email( ProtonxVSxNeutron@proton.me ).
+-  If You're interested in, Contact via email {protonxvsxneutron@proton.m}).
 
 
 --->The name Jake Syther is a referenced name to the main character of a science fiction story whose rights have been bought, and Copyrighted.<---
