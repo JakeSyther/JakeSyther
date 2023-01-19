@@ -1,15 +1,16 @@
--  Welcome, We're Reverse-A Studios (Alpha).
--  We are interested in science fiction - action cinematic, games, visuals and designs.
--  We're currently working on game engines with language(C# && CPP)based on, and with a variety of Modelling Tools.
--  We are currently preparing a story based on science fiction and action. Our ultimate goal is to contribute to science by imagining technology beyond the ages,            completely beyond current science. We will go through many topics independent of the main topic, even though each story is connected with the other, at the end of the    story you will eventually face a completely different reality. Moreover, the story will take you to the present day in the last chapter within a different reality,      and it will continue uninterruptedly, based on action with many world wars. You'll face the reasons for the political and chaotic order that prevents the advanced age    of humanity from having superior technology, in the end.
--  The main founder promised that 50% and more of the total revenues will be spent on the production and development of self-manufacturing and distribution of artificial    intelligence mobile vehicles and drones which protecting the diverse nature and enabling it to expand in order to improve our home = the planet "Earth".
--  In this way, we believe that we will overcome the global food crisis in the world and that we will save many future scientists, doctors and engineers from starvation.
--  We are burning with the dream of a world where babies do not die. We are aware that we need to work hard for a more beautiful world.
--  If You're interested in, Contact via email {protonxvsxneutron@proton.me}.
+Welcome to Reverse-A Studios (Alpha). We're in creating science fiction and action-based cinematic experiences, games, and designs. We are currently developing games with engines using C# and C++, along with a variety of modelling tools.
+
+We are currently in the process of creating a story based on science fiction and action. Our ultimate goal is to contribute to science by imagining technology beyond what is currently possible. The story will cover various topics, but they will all be connected to the main story. At the end of the story, you will be presented with a completely different reality. The story will also include action-packed world wars in different ages and realities and will explore the reasons for the political and chaotic order that prevents humanity from achieving advanced technology.
+
+The main founder of the company has pledged that at least 50% or more of the total revenues will be used for artificial intelligence mobile vehicles and drones for development and their production. (Which cultivates the fields and distributes the crops by itself)  
+The main purpose is to protect nature and expand to more green, in order to improve our home planet, Earth.
+
+In this way, we believe we can overcome the global food crisis and save many future scientists, doctors, and engineers from starvation. We are passionate about creating a world better place where babies do not die and we are determined to work hard to make it a reality.
+
+If you are interested in learning more, please contact us via email at protonxvsxneutron@proton.me
 
 
---->The name Jake Syther is a referenced name to the main character of a science fiction story whose rights have been bought, and Copyrighted.<---
----> The Story of ''Age Of Reverse''<---
+The name "Jake Syther" is a reference to the main character in a science fiction story that has been purchased and copyrighted as "The Story of 'Age Of Reverse'".
 
 
 
