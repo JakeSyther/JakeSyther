@@ -7,7 +7,7 @@ The main purpose is to protect nature and expand to more green, in order to impr
 
 In this way, we believe we can overcome the global food crisis and save many future scientists, doctors, and engineers from starvation. We are passionate about creating a world better place where babies do not die and we are determined to work hard to make it a reality.
 
-If you are interested in learning more, please contact us via email at protonxvsxneutron@proton.me
+If you are interested in learning more, please contact us via email at protonxvsxneutron@proton.me || contact@reversealphastudios.net
 
 
 The name "Jake Syther" is a reference to the main character in a science fiction story that has been purchased and copyrighted as "The Story of 'Age Of Reverse'".
