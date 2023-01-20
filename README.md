@@ -5,7 +5,7 @@ We are currently in the process of creating a story based on science fiction and
 The main founder of the company has pledged that at least 50% or more of the total revenues will be used for artificial intelligence mobile vehicles and drones for development and their production. (Which cultivates the fields and distributes the crops by itself)  
 The main purpose is to protect nature and expand to more green, in order to improve our home planet, Earth.
 
-In this way, we believe we can overcome the global food crisis and save many future scientists, doctors, and engineers from starvation. We are passionate about creating a world better place where babies do not die and we are determined to work hard to make it a reality.
+In this way, we believe we can overcome the global food crisis and save many future scientists, doctors, and engineers from starvation. We are passionate about creating a world better place where babies do not die, and we are determined to work hard to make it a reality.
 
 If you are interested in learning more, please contact us via email at protonxvsxneutron@proton.me || contact@reversealphastudios.net
 
