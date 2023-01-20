@@ -10,7 +10,7 @@ In this way, we believe we can overcome the global food crisis and save many fut
 If you are interested in learning more, please contact us via email at protonxvsxneutron@proton.me || contact@reversealphastudios.net
 
 
-The name "Jake Syther" is a reference to the main character in a science fiction story that has been purchased and copyrighted as "The Story of 'Age Of Reverse'".
+The name "Jake Syther" is a reference to the main character in a science fiction-action story that has been purchased and copyrighted as "The Story of 'Age Of Reverse'".
 
 
 
