@@ -20,3 +20,4 @@ The subject has all the legal rights
 by U.S. Copyright Office
 101 Independence Ave. S.E.
 Washington, D.C.
+Registered copyright numbers = (SR0101954265/2019-03-11), (SR0155463251/2021-05-28), (AD-0254856/2022-05-21);
